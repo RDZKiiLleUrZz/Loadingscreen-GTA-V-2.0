@@ -4,7 +4,7 @@ https://fivefrance.fr/topic/50/release-loadingscreen-gta-v-2-0/2
 
 Youtube : https://www.youtube.com/channel/UC7cOssWHSyWgxnVZ3Q-2iIQ
 
-Discord : https://discord.gg/b6aB5wS
+Discord : https://discord.gg/QW4TDJP
 
 ![alt tag](https://img4.hostingpics.net/pics/604019alizarin1.png)
 
